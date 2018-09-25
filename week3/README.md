@@ -1,0 +1,1 @@
+#### This weeks tutorial will focus on used for student directed topics and independent work on your final project.
